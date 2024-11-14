@@ -1,1 +1,0 @@
-# ScholAuto-Privacy-Policy
